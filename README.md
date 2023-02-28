@@ -13,3 +13,18 @@ Here are some ideas to get you started:
 - 📫 How to reach me: souvik.2095@gmail.com
 - ⚡ Fun fact: ...
 -->
+A passionate Developer
+
+shashankanand13monu
+
+Connect with me:
+officialanand13 shashankanand13 officialanand13 shashank13monu shashankanand131
+
+Languages and Tools:
+c cplusplus git heroku mysql opencv postman python pytorch tensorflow zapier
+
+shashankanand13monu
+
+ shashankanand13monu
+
+shashankanand13monu
